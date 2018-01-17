@@ -3,7 +3,6 @@
 ##### Seattle, WA | 206-310-0947 | erfisher90@gmail.com
 
 ## Objective
-To gain the technical expertise necessary to deliver high-quality, well-informed instruction to high school students.
 
 ## Highlights
 * Taught AP Computer Science Principles course to 12th grade students using the code.org curriculum
