@@ -2,6 +2,8 @@
 ## Computer Science Teacher
 ##### Seattle, WA | 206-310-0947 | erfisher90@gmail.com
 
+professional/IMG_4495 (1).jpg
+
 ## Objective
 
 ## Highlights
