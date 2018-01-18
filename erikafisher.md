@@ -33,4 +33,4 @@ Biology - General
 
 ## Links
 LinkedIn:
-https://www.linkedin.com/FINISH LINK
+https://www.linkedin.com/in/erika-fisher-8b9b1064/
