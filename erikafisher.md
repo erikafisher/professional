@@ -1,5 +1,5 @@
 # Erika Fisher
-## Computer Science and Mathematics Teacher
+## Computer Science and Math Teacher
 ##### Seattle, WA | 206-310-0947 | erfisher90@gmail.com
 
 <img src="https://github.com/erikafisher/professional/blob/master/IMG_4495%20(1).jpg" width="200">
